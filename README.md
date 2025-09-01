@@ -1,2 +1,0 @@
-# anunchapesxa
-site para divulgação
